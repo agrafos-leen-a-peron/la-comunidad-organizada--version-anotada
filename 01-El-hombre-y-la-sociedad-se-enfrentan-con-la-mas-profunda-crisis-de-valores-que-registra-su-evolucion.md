@@ -9,10 +9,9 @@ un discurso que se escribio para que Peron lo leyera en el cierre del Congreso N
 Hay que tener en cuenta, sin embargo, que los primeros dieciseis subtitulos (este es el primero) no formaron parte del texto que fue leido por Peron sino que fueron
 incorporados a posteriori, cuando se hace la publicacion de las Actas del Congreso de Filosofia, un año despues, en 1950.
 
-El año, entonces, es 1949, y con "el momento trascendental que vivimos" se refiere a la salida de la Segunda Guerra Mundial.
-
-con dos cosmovisiones enfrentadas: el capitalismo encarnado por EEUU
-y el colectivismo encarnado por la URSS. La caida del muro de Berlin era inimaginable en aquel entonces. La moneda estaba en el aire todavia.
+El año, entonces, es 1949, y con "el momento trascendental que vivimos" se refiere a la salida de la Segunda Guerra Mundial con dos cosmovisiones enfrentadas: 
+el capitalismo encarnado por EEUU y el colectivismo encarnado por la URSS. 
+La caida del muro de Berlin era inimaginable en aquel entonces. La moneda estaba en el aire todavia.
 
 Cuando habla de "la crisis de valores mas profunda" se refiere a la disyuntiva entre dos cosmovisiones enfrentadas: el capitalismo encarnado por EEUU
 y el colectivismo encarnado por la URSS, totalmente incompatibles entre si. 
