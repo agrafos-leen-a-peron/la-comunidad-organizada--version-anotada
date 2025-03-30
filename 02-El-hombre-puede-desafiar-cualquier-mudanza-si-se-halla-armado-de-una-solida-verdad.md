@@ -45,3 +45,15 @@ adaptado previamente el espíritu humano a lo que había de sobrevenir.
 Peron dice que hombres inteligentes y preparados ya advirtieron sobre el peligro de que el materialismo y la globalizacion nos alcancen sin prepararnos.
 Dice que es posible enfrentarse a cualquier situacion, buena o mala, si se tienen principios eticos y morales solidos.
 Pero que sin ellos, podria pasar que se confunda al intentar valorarse a si mismo en un mundo que esta cambiando.
+
+> En tal coyuntura la filosofia recupera el claro sentido de sus origenes.
+> Como mision pedagogica halla su nobleza en la sintesis de la verdad, y su proyeccion consiste en "iluminar", en un llevar al campo visible formas y objetos antes inadvertidos;
+> y, sobre todo, relaciones.
+> Relaciones directas del hombre con su principio, con sus fines, con sus semejantes y con sus realidades inmediatas.
+
+Parece entusiasmar a Peron que estos ultimos congresos de filosofia se enfoquen en la crisis de valores, porque implicaria que la filosofia esta dejando de ser superficial y vuelve a sus origenes,
+vuelve a enfocarse en enseñar, en buscar la verdad, pero especialmente, en estudiar las relaciones del hombre consigo mismo, con los demas y con el mundo.
+
+> De los elevados espacios, donde las razones ultimas resplandecen, procede la norma que articula al cuerpo social y corrige sus desviaciones.
+
+Peron entiende que desde la espiritualidad surgen los elementos que le permitiran a la sociedad evitar los peligros del materialismo.
