@@ -36,6 +36,9 @@ Peron confirma que el materialismo vino acompañado con un notable progreso econ
 pero se pregunta si la vida moderna (el poderio estruendoso de la maquina) aturde y no da tiempo a pensar, a meditar con tranquilidad en los nuevos problemas
 que puedan surgir ahora que hay una perspectiva mas global.
 
+Muy importante ver que aca Peron no condena al materialismo en si, sino que dice que es imperativo enfrentarlo
+con el andamiaje moral y etico necesario para que no se vuelva el objetivo ultimo de la vida.
+
 > Preclaros cerebros han intentado advertir al mundo del peligro que supone que el hecho no haya tenido un prólogo ni una preparación; de que no se haya 
 adaptado previamente el espíritu humano a lo que había de sobrevenir.
 > El hombre puede desafiar cualquier contingencia, cualquier mudanza, favorable o adversa, si se halla armado de una verdad sólida para toda la vida.
